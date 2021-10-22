@@ -4,6 +4,7 @@
 Currently working on YAPPY in GAZPROM-MEDIA
 
 Flutter-teamlead and Flutter enthusiast
+
 Love and practice autosport on: 1uz-fe vvti sxe 10
 
 Fun fuct: 
